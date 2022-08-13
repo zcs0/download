@@ -6,3 +6,4 @@
 - IOS 敬请期待 
 
 ## 备注：请务必收藏本页面，方便日后下载新版本（本页面为官方唯一防封下载发布页）Remarks: Please be sure to bookmark this page so that you can download new versions in the future (this page is the only official anti-blocking download release page)
+非常好用，而且免费
